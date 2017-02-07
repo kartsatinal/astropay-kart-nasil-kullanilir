@@ -1,0 +1,2 @@
+# astropay-kart-nasil-kullanilir
+%100 güvenli bir ödeme yöntemi olan astropay kart çok kolay bir kullanıma sahiptir. http://astropay.kartsatinal.com/nasil-kullanilir/ sayfamızda sizlere detaylı bir şekilde astropay kart ile nasıl ödeme yapacağınızı anlattık yazımızı okuyarak bilgi edinebilirsiniz. Yada sesli ve videolu anlatımımız olan https://www.youtube.com/watch?v=vNpuFr5l-NM videomuzu izleyerek daha pratik bilgi edinebilirsiniz.
